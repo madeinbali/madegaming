@@ -1,0 +1,2 @@
+# madegaming
+Semoga lancar
